@@ -1,3 +1,3 @@
 # My fave movie
-## ** Harry Potter **
+** Harry Potter **
 
